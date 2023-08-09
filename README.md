@@ -5,7 +5,7 @@ weeeeeeeeeeeeeeeeeeeeeee
 ![s](https://pixel.crd.co/assets/images/gallery02/7de46f4e.gif?v=6c952962)
 
 
-![ㅇ](https://wilardo.crd.co/assets/images/gallery10/17a20d58.png?v=a363c8e1) ![ㅇ](https://wilardo.crd.co/assets/images/gallery10/4913cc50.png?v=a363c8e1) ![d](https://wilardo.crd.co/assets/images/gallery10/816dce38.png?v=a363c8e1) ![d](https://wilardo.crd.co/assets/images/gallery10/5a72a12b.png?v=a363c8e1) ![ㅇ](https://wilardo.crd.co/assets/images/gallery10/c41d2937.jpg?v=a363c8e1)
+![ㅇ](https://wilardo.crd.co/assets/images/gallery10/17a20d58.png?v=a363c8e1) ![ㅇ](https://wilardo.crd.co/assets/images/gallery10/4913cc50.png?v=a363c8e1) ![d](https://wilardo.crd.co/assets/images/gallery10/816dce38.png?v=a363c8e1) ![d](https://wilardo.crd.co/assets/images/gallery10/5a72a12b.png?v=a363c8e1) ![d](https://mikejima.crd.co/assets/images/gallery14/f5aaa7c9.gif?v=16e7e82c) ![ㅇ](https://wilardo.crd.co/assets/images/gallery10/c41d2937.jpg?v=a363c8e1)
 
 ![image](https://github.com/wyippee/wyippee/assets/118184209/c3f5d0aa-3f96-4ccf-8c9d-d7dbc07ad7bc) ![d](https://media.discordapp.net/attachments/1124812862213341346/1138649441734250608/821a3990.png?width=123&height=70) ![image](https://github.com/wyippee/wyippee/assets/118184209/1f85027a-410d-4c69-8b29-447a4d3010ed)
 ![d](https://pixel.crd.co/assets/images/gallery02/2e21e66d.gif?v=6c9529620) ![s](https://watermelon.crd.co/assets/images/gallery07/2d99cd5f.jpg?v=ab2f6a73)
