@@ -1,5 +1,4 @@
-weeeeeeeeeeeeeeeeeeeeeee
-
+kys if ure a chiakao shipper anj loserass! HAM!11111111
 
 ![d](https://media.discordapp.net/attachments/1073270199878418433/1138678576410017922/blinkiesCafe-5i.png?width=187&height=25) ![s](https://pixel.crd.co/assets/images/gallery02/7de46f4e.gif?v=6c952962) 
 
